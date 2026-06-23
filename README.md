@@ -3,4 +3,4 @@ Louro José é o icônico papagaio-figurino que acompanhou Ana Maria Braga desde
 Hoje Louro José é lembrado como um símbolo da televisão brasileira: carismático, sarcástico na medida certa e fundamental na construção da relação apresentadora‑público do programa em que atuou.
 
 
-  ![lourojosé](https://tenor.com/pt-BR/view/funny-animal-parrot-toy-gif-13801011)
+  [lourojosé](https://tenor.com/pt-BR/view/funny-animal-parrot-toy-gif-13801011)
